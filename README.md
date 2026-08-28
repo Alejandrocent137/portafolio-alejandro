@@ -1,2 +1,1 @@
-# portafolio alejandro
-
+# rick sanchez
